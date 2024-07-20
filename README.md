@@ -1,1 +1,1 @@
-nurunyato.github.io
+www.nurunyato.github.io
